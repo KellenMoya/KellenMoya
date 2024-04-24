@@ -1,5 +1,5 @@
 - 👋 Olá, me chamo @KellenMoya e tenho 33 anos (Geração Y);
-- 👀 Uma curiosidade sobre mim é que sou graduada em Psicologia desde 2017, atuei nas áreas de clinica e organizacional, mas principalmente organizacional com R&S e T&D;
+- 👀 Uma curiosidade sobre mim é que sou formada em Psicologia desde 2017, atuei nas áreas de clinica e organizacional, mas principalmente organizacional com R&S e T&D;
 - 🌱 Atualmente sou estudante de Análise e desenvolvimento de sisteas, pela universidade Uniasselvi;
 - 💞️ Gostaria de colaborar e aprender mais sobre meu curso atual;
 - 📫 Sou de Cuiabá-MT, meu e-mal é kellenmoyaa@gmail.com
